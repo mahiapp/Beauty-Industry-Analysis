@@ -32,9 +32,6 @@ Know.KoreanSerums. https://koreanserums.com/american-beauty-standards/
 Povoa, Angela (2019), “Beauty Premium DATASET”, Mendeley Data, V1, doi:
 10.17632/553zngdbpk.1
 
-Richard, E. (2021). Stop Imposing Eurocentric Beauty Standards.An Injustice!
-Magaizine.
-https://aninjusticemag.com/stop-imposing-eurocentric-beauty-standards-1560f58593d2
 
 
 
